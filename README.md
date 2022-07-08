@@ -6,6 +6,7 @@
 ### Steak Tartare
 Diced raw beef blended with ssamjang aoili
 * Pickled Asian Pear
+* Ssamjang aoili (spicy korean mayo)
 * Cured duck egg yolk (shaved)
 * Wonton Crisp
 * Micro- shiso 
